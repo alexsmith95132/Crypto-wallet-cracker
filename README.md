@@ -1,4 +1,4 @@
-***CRYPTO WALLET CRACKER*** \
+***CRYPTO WALLET CRACKER***
 
 What does our software do?
 
