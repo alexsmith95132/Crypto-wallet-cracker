@@ -19,7 +19,7 @@ What should i do after getting my subscription ?
 
 Absolutely nothing.....\
 You should only run the software on your pc or your laptop and go and mind your business.\
-You just need an stable connection and a pc or a laptop. That's it!!.\
+You just need an stable connection and a pc or a laptop. That's it!!
 
 #### **Telegram**
 
