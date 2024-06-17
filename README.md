@@ -2,7 +2,7 @@ What does our software do?
 
 With our software you can easily crack into forgotten crypto wallets.
 Up to 6 cryptos supported.
-Such as : **BTC, ETH, SOL**And more...
+Such as : **BTC, ETH, SOL** And more...
 
 Is that illegal⁉️
 
