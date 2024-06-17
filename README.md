@@ -1,8 +1,12 @@
-With our software you can easily crack into crypto wallets. ethereum , btc, solana and more cryptos supported.
+What does our software do?
 
-Is that illegal? ⁉️
+With our software you can easily crack into forgotten crypto wallets.
+Up to 6 cryptos supported.
+Such as : **BTC, ETH, SOL**And more...
 
-NO!!🚫
+Is that illegal⁉️
+
+**NO!!**🚫
 This software developed in a way that it will only look for forgotten wallets from the past years. 
 It's not a illegal thing to do. 💯
 
@@ -15,7 +19,5 @@ Absolutely nothing.....
 You should only run the software on your pc or your laptop and go and mind your business. 😄👀
 You just need an stable connection and a pc or a laptop. That's it 😱🫡⌨️
 
-Where to buy it and how much is its price??
-
-You can find the support id and the prices in our telegram channel : 
-@crackingwallets
+Fore more infos and prices, you can take a look at our Telegram channel with this ID : 
+**@CrackingWallets**
