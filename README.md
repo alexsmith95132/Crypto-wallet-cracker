@@ -9,13 +9,13 @@ Such as : **BTC, ETH, SOL** And more...
 ### Is that illegal⁉️
 
 **NO!!** 🚫\
-This software developed in a way that it will only look for forgotten wallets from the past years. \
-It's not a illegal thing to do. 💯\
+This software developed in a way that it will only look for forgotten wallets from the past years.\
+It's not a illegal thing to do.\
 
-That's an easy way to make money 💵\
+That's an easy way to make money\
 
-Because there is no risks at this work. 🤑\
-What should i do after getting my subscription ? 🤨🤔\
+Because there is no risks at this work.\
+What should i do after getting my subscription ?\
 
 Absolutely nothing.....\
 You should only run the software on your pc or your laptop and go and mind your business.\
