@@ -1,4 +1,4 @@
-***CRYPTO WALLET CRACKER***
+# ***CRYPTO WALLET CRACKER***
 
 What does our software do?
 
@@ -22,4 +22,4 @@ You should only run the software on your pc or your laptop and go and mind your 
 You just need an stable connection and a pc or a laptop. That's it!!\
 
 Fore more infos and prices, you can take a look at our Telegram channel with this ID : \
-**@CrackingWallets**
+**[@CrackingWallets](https://t.me/CrackingWallets)**
