@@ -6,7 +6,7 @@ Such as : **BTC, ETH, SOL** And more...
 
 Is that illegal⁉️
 
-**NO!!** 🚫
+**NO!!** 🚫\
 This software developed in a way that it will only look for forgotten wallets from the past years. \
 It's not a illegal thing to do. 💯\
 
