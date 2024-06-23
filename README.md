@@ -9,7 +9,7 @@ Such as : **BTC, ETH, SOL** And more...
 ### How does it work?
 Our software developed in a way that it will only look for forgotten wallets from the past years.
 That's an easy way to make money
-Because there is no risks at this work.\
+Because there is no risks at this work.
 
 ### What should i do after getting my subscription ?
 Absolutely nothing.....\
